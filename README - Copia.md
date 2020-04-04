@@ -5,3 +5,4 @@ modifica delle 19.30, fra poco si cena
 
 dopo cena si continua e si spacca tutto
 ti saluta la Simy
+questo nn lo voglio più
